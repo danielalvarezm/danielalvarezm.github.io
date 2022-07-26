@@ -1,1 +1,0 @@
-# danielalvarezm.github.io
